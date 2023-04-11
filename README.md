@@ -9,7 +9,7 @@
 ### 💞️ feel free to reach out to me for collaboration on any intersting project
 ## 📫 How to reach me
   -  Email: [kekeligolo@gmail.com](mailto:kekeligolo@gmail.com)
-  -  Tel: [+22891025263](tel:+22891025263)
+  -  Tel: [+22891025263](tel:22891025263)
   -  Telegram: [Hlabsdev](https://t.me/Hlabsdev)
   -  Whatsapp: [+22891025263](http://wa.me/22891025263)
 
